@@ -16,20 +16,19 @@ I’m a third-year PhD student in **Econometrics** at **The University of Adelai
 - **Bayesian Econometrics**
 
 ### 🎹 Music and More
-- Apart from my academic pursuits, I'm a passionate pianist. Having started at age three, have a deep appreciation for the works of **Chopin** and **Liszt**.
-- Love **Imagine Dragons** and **The Script**
+Piano has been part of my life since age three — especially anything by Chopin or Liszt.
 
 ### 🌏 Based in Adelaide, South Australia
 
 ### 💬 A Bit More Personal
 - Friends often call me **Rachel** for convenience.
-- As an **ENTP** high on openness to experience, I thrive on exploring new ideas and constantly seek stimulating and creative experiences.
+- ENTP: curious, idea-driven, and constantly exploring new experiences.
 
 ### 🏸 Active and Engaged
-In my free time, I enjoy **badminton**, **swimming**, and **hiking**.
+I enjoy badminton, swimming, diving, and hiking.
 
 ### 🧱 Creative Builder
-I also take pleasure in building with **LEGO**, a playful and creative outlet that provides a balance to my structured academic life.
+I love building with LEGO, creating small mini-games, and LOVE LoL!! 
 
 
 
