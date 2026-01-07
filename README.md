@@ -16,7 +16,7 @@ I’m a third-year PhD student in **Econometrics** at **The University of Adelai
 - **Bayesian Econometrics**
 
 ### 🎹 Music and More
-Piano has been part of my life since age three — especially anything by Chopin or Liszt.
+Piano has been part of my life since age three — especially anything by Chopin or Liszt. 
 
 ### 🌏 Based in Adelaide, South Australia
 
@@ -25,7 +25,7 @@ Piano has been part of my life since age three — especially anything by Chopin
 - ENTP: curious, idea-driven, and constantly exploring new experiences.
 
 ### 🏸 Active and Engaged
-I enjoy badminton, swimming, diving, and hiking.
+I enjoy tennis，badminton, swimming, diving, and hiking.
 
 ### 🧱 Creative Builder
 I love building with LEGO, creating small mini-games, and LOVE LoL!! 
